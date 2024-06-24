@@ -1,4 +1,4 @@
-School ! busy now, cant online for to long
+School ! busy now, cant online for too long
 I like cake and sweet, Saki, Seele and Rin.
 Me-Rynn.
 just whisper me if u want i feel okay
