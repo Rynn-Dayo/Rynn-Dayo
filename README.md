@@ -1,6 +1,6 @@
 School ! busy now, cant online for too long
 
-I like cake and sweet, Saki, Seele and Rin.
+I like Saki.
 
 Me-Rynn.
 
